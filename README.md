@@ -1,4 +1,4 @@
-# ୨ৎ Hi, I'm Yullia! ♡
+# ୨ Hi, I'm Yullia! ♡
 
 ### aspiring cybersecurity professional 🎀
 
